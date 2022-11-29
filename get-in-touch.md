@@ -1,4 +1,4 @@
-# Get in Touch
+# Get in touch
 
 **Website:** [castling.finance](https://app.gitbook.com/o/QGix9GyHPmKXZhkEhMJ4/s/u1AgJ4dnZGa3OtdGnTQ8/)
 
